@@ -28,7 +28,7 @@ I'm an aspiring AI/ML engineer interested in exploring technology, solving probl
 
 ##  Connect With Me
 
-- **LinkedIn:** [My LinkedIn Profile](www.linkedin.com/in/l-navya-kandra)
+- **LinkedIn:** [My LinkedIn Profile](https://www.linkedin.com/in/l-navya-kandra/)
 
 ---
 
